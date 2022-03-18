@@ -37,3 +37,34 @@ discount
 area
 fire alarms
 elevator
+
+## 3-7
+live nearby
+college
+old airport
+**prize cup**
+chairman
+travelling
+get good shoes
+**wear formal clothes**
+larger office
+a good pay
+**rubber**
+stop watch秒表
+certificate证书
+vision
+sharks
+time
+nets
+ship bell
+name
+library
+car park
+price
+shirt
+outside
+public area
+the lead
+sheet冰道
+house
+horse hair
